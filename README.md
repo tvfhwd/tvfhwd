@@ -1,6 +1,6 @@
-hi, i’m **[@tvfhwd](https://github.com/tvfhwd)** but you can call me enza :3
+hi, i’m **[@tvfhwd](https://github.com/tvfhwd)** 
 
-i'm from new york and i'm a trans woman 🏳️‍⚧️ (pronouns are she/they/it)
+i'm from new york and i'm a trans woman (pronouns are she/they/it)
 
 you can reach me on...
 - twitter: [@__tvfhwd](https://twitter.com/__tvfhwd)
